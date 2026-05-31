@@ -1,4 +1,4 @@
-# QAF Clinics — Strategic Growth Memo
+# QAF Clinics - Strategic Growth Memo
 
 Dental Clinics | Riyadh, Saudi Arabia
 
